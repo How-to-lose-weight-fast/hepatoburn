@@ -1,8 +1,8 @@
-Each morning started with warm lime water. I added oats to my meals, took daily walks around the neighborhood, and tried my best to eat healthy. But the truth? I wasn’t feeling any better. I felt worse.
+Each morning started with warm lime water. I added oats to my meals, took daily walks around the neighborhood, and made an effort to eat healthily. But the truth? I wasn’t feeling any better. I felt worse.
 
 My knees ached constantly. I was always tired, no matter how much I rested. And the hardest part of it all? I couldn’t keep up with my sweet granddaughter, Olivia. She’s my little sunshine, but even just standing up after playing with her left me out of breath and in pain.
 
-When she left in the evenings, the silence in the house felt heavy. I missed the version of me who used to be full of energy and joy. I started to wonder... is this just aging? Do I have to accept the weight gain, the fatigue, the discomfort?
+When she left in the evenings, the silence in the house felt heavy. I missed the version of me who used to be full of energy and joy. I started to wonder... Is this just a natural part of aging? Do I have to accept the weight gain, the fatigue, the discomfort?
 
 But then something unexpected happened over lunch with my best friend, Heather.
 
@@ -22,7 +22,7 @@ Now, when Olivia visits, I’m the one chasing her around the room — laughing,
 
 
 
-👉 **[Read the full story here](https://hepato-burn.carrd.co/)** to find out exactly what changed—and how it might change your life, too.
+👉 **[Read the full story here](https://mitolyn-official-buy.carrd.co/)** to find out exactly what changed—and how it might change your life, too.
 
 
 
